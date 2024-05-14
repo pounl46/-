@@ -19,3 +19,9 @@
 - 🔗 깃허브: [github.com/pounl46](https://github.com/pounl46)
 
 게임 개발에 관심이 있거나 협업을 원하신다면 언제든지 연락 주세요! 함께 배우고 성장하는것을 즐깁니다.
+
+I'm Game Deverloper use UnrealEngine!
+
+Hello! i'm Game Deverloper Use UnrealEngine! my age is 16(In South Korea), i'm leaning some BluePrint and Material and some Build Level!
+MY PortFolio here -> (https://youtube.com/@pounl46v1?si=eqQJa2w-AstqiVc7) and my E-Mail here -> kimmin20090309@gmail.com
+thx to reading!!
